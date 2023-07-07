@@ -1,5 +1,5 @@
 # 💫 About Me:
-Aprendiendo y aprendiendo ☕br><br><br><br><br>
+Aprendiendo y aprendiendo ☕
 
 
 ## 🌐 Socials:
