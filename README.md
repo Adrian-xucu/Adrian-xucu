@@ -1,5 +1,5 @@
 # 💫 About Me:
-Now I'm diving deeper into the world of programming<br>And currently, I want to explore more in C++ and JS to venture into new and innovative projects and meet people to collaborate <br>with as a team.<br><br><br><br><br>
+Aprendiendo y aprendiendo ☕br><br><br><br><br>
 
 
 ## 🌐 Socials:
